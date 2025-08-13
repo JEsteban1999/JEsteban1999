@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Juan Esteban Narváez Carvajal</h1>
-<h3 align="center">A motivated and passionate Software Developer</h3>
+<h3 align="center">A motivated and passionate Electronic Engineer</h3>
 
 - 🌱 I’m currently learning **React and Javascript**
 
