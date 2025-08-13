@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **juesnaca99@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LlmgrzFs6aGoCTlkeI6_P5k8tvE_qyKW/view?usp=share_link](https://drive.google.com/file/d/1LlmgrzFs6aGoCTlkeI6_P5k8tvE_qyKW/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1LlmgrzFs6aGoCTlkeI6_P5k8tvE_qyKW/view?usp=share_link](https://drive.google.com/file/d/1s0us0Ig2xuuokq4-AZj-RhgHu6RXaSI6/view?usp=drive_link)
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
